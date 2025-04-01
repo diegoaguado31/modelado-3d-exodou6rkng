@@ -1,1 +1,0 @@
-# modelado-3d-exodou6rkng
